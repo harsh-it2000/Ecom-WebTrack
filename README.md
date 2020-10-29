@@ -1,0 +1,1 @@
+# OSP_PROJECT_COPY
